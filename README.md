@@ -1,3 +1,3 @@
 # My-Portfolio
-Author rozy karmi
+Author - rozy karmi
 
